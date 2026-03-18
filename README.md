@@ -1,1 +1,0 @@
-# ronaldseda16.github.io
